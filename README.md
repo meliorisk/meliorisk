@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @meliorisk
-- 👀 I’m interested in lerning 
+- 👀 I’m interested in learning 
 - 🌱 I’m currently learning everything from the begining 
 - 💞️ I’m looking to collaborate on - not ready yet
 - 📫 How to reach me - pls dont
